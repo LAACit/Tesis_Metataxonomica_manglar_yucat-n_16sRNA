@@ -1,4 +1,4 @@
-# Metataxonómica de bacterias comoindicador de la descarga de xenobióticos por el Anillo de Cenotes en el sedimento de manglar rojo
+# Metataxonómica de bacterias como indicador de la descarga de xenobióticos por el Anillo de Cenotes en el sedimento de manglar rojo
 
 Resumen:
 
